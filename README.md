@@ -6,7 +6,7 @@ Get a **lifetime 20% discount** on trading fees by using the exclusive OKX refer
 
 🚀 **Unlock Your Crypto Journey with OKX!** Trade with zero fees, access cutting-edge Web3 features, and join millions of global traders. New users get an exclusive welcome bonus of up to 100 USDT! 
 
-👉 Click to view ☞ [OKX Welcome Limited-Time Offer, Claim Up to 100 USDT Reward]（https://www.ouxyi.link/ul/6CngT5?channelId=2198730223)
+👉 Click to view ☞ [OKX Welcome Limited-Time Offer, Claim Up to 100 USDT Reward](https://www.ouxyi.link/ul/6CngT5?channelId=2198730223)
 
 ---
 
